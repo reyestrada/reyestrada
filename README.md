@@ -1,7 +1,5 @@
 ## Thank you for taking a look at my profile ✌️
 
-My name is (as you may already guess) **Rey Estrada**.
-
 I'm a computer system engineer with many years of experience. I am a very curious person with a desired of automate as much as possible while also following the KISS rule.
 
 In my career path I've held different job roles, which helped me to develop myself in various areas. They all gave me a different point of view, helping me see things from different perspectives. I'm saying that because my career path has been as follows:
